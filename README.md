@@ -1,3 +1,7 @@
+# Update New Floral Flavors 11/6/23
+- Flavors such as rose, chamomile, orange blossom, jasmine, lavender, hibiscus
+- Herbal Flavors such as mint, earl grey, camellia sinensis varieties, ginger, sage, lemongrass
+
 # Update Living Packaging for Shipping Jams 9/8/23 
 Agricultural waste into living self healing materials for packaging
 https://github.com/holdings420/LivingPackaging
