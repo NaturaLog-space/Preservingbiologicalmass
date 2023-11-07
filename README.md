@@ -4,10 +4,10 @@
 - Autumn Spice such as allspice, nutmeg, cardamom, cinnamon, cloves, saffron
 
 
-Create extracts using vodka or whiskey to add the spice for the autumn flavors or add essential oils of spices for a general emulsification in a blender.
+- Create extracts using vodka or whiskey to add the spice for the autumn flavors or add essential oils of spices for a general emulsification in a blender.
 
 
-- A great way to make every customer stand out, every bottle is custom screen printed with the name of the receipient!
+- A great way to make every customer stand out, every luxurious bottle is custom screen printed with the name of the receipient!
 
 # Update Living Packaging for Shipping Jams 9/8/23 
 Agricultural waste into living self healing materials for packaging
