@@ -3,7 +3,7 @@
 - Herbal Flavors such as mint, earl grey, camellia sinensis varieties, ginger, sage, lemongrass
 - Autumn Spice such as allspice, nutmeg, cardamom, cinnamon, cloves, saffron
 
-Create extracts using vodka or whiskey to add the spice for the autumn flavors. 
+Create extracts using vodka or whiskey to add the spice for the autumn flavors or add essential oils of spices for a general emulsification in a blender.
 
 # Update Living Packaging for Shipping Jams 9/8/23 
 Agricultural waste into living self healing materials for packaging
