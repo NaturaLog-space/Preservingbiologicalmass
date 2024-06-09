@@ -1,6 +1,6 @@
-# Update Bees Free the people 6/8/24
-- How the bees made a difference by freeing the people
-- 
+# Update Can Bees Free the people 6/8/24
+- The story of how bees made a difference by freeing the flowers.
+
 # Update New Floral Flavors 11/6/23
 - Flavors such as rose, chamomile, orange blossom, jasmine, lavender, hibiscus
 - Herbal Flavors such as mint, earl grey, camellia sinensis varieties, ginger, sage, lemongrass
